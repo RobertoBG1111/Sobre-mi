@@ -15,3 +15,5 @@ En qué estoy trabajando:
 
 Bootcamp de Análisis de Datos en TripleTen, desarrollando proyectos que aplican el análisis de datos a problemas reales, desde movilidad urbana y productividad económica en Latinoamérica hasta optimización de procesos.
 Busco oportunidades como Data Analyst Jr. donde pueda aportar pensamiento estructurado, honestidad analítica y ganas de crecer.
+
+Correo : robertobg1111@outlook.com    LinkedIn: www.linkedin.com/in/robertobarreragarcia
