@@ -18,4 +18,6 @@ Busco oportunidades como Data Analyst Jr. donde pueda aportar pensamiento estruc
 
 # Contacto
 
-Correo : robertobg1111@outlook.com    LinkedIn: www.linkedin.com/in/robertobarreragarcia
+Correo : robertobg1111@outlook.com   
+
+LinkedIn: www.linkedin.com/in/robertobarreragarcia
